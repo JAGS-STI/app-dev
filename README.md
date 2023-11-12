@@ -6,6 +6,8 @@
 
 **- By Makoto Shinkai**
 
+>“Once in a while when I wake up. I find myself crying.” <br>
+>– Mitsuha Miyamizu
 <br>
 <br>
 <br>
